@@ -1,0 +1,1 @@
+# EsercizioCatalogoNov10
